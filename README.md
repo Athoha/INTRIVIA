@@ -10,3 +10,6 @@
 
 ## Kesan Pesan Cluster 7 Sejauh Ini 
 [Dinamika di dalam cluster ini sangat menyenangkan karena teman-teman dan mentor selalu ramah, suportif, serta kompak dalam setiap kegiatan. Semoga kekompakan dan semangat saling mendukung ini bisa terus terjaga dengan baik, tidak hanya selama kegiatan berlangsung tetapi juga untuk seterusnya.] 
+
+## Harapan Kuliah 
+[Saya berharap akan mendapatkan pekerjaan yang memuaskan dengan gaji yang banyak.] 
